@@ -2,4 +2,4 @@
 
 liberally the best website 
 
-```https://minorcarmistake.com```
+https://minorcarmistake.com
