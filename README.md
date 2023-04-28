@@ -3,5 +3,3 @@
 liberally the best website 
 
 https://minorcarmistake.com
-
-https://minorcarmistake.com/minorcarmistake-128w.png
